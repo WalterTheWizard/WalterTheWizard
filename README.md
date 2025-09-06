@@ -5,4 +5,4 @@ The reason im using github is to make an app <br>
 where we can store and access data from any place <br>
 on any device.<br>
 <img width="150"" alt="MEW" src="https://github.com/user-attachments/assets/c50b12e7-da1a-4fd4-be27-352f12f925ac" />
-I really like to read and we have 3 1/2 bookshelves full of books in our basement. 
+I really like to read and we have 3 1/2 bookshelves full of books in our basement. People are generally appalled at the speed with which i read but that way i can read almost any given book any given amount of times📚📚📚
